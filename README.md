@@ -12,7 +12,7 @@ En 2003, fue fichado por el Sporting de Lisboa, uno de los clubes más important
 
 ## Salto al estrellato
 
-![Cristiano Ronaldo en el Real Madrid]("/cr7.jpeg")
+![Cristiano Ronaldo en el Real Madrid]("cr7.jpeg")
 
 En 2003, Ronaldo fue fichado por el Manchester United, uno de los equipos más exitosos de Inglaterra. Allí, bajo la dirección técnica de Sir Alex Ferguson, se convirtió en uno de los jugadores más importantes del equipo y del fútbol mundial.
 
