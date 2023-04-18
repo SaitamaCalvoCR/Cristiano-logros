@@ -22,6 +22,16 @@ En 2009, Ronaldo fichó por el Real Madrid, uno de los clubes más importantes d
 
 En 2018, Ronaldo fichó por la Juventus de Turín, uno de los equipos más importantes de Italia. Con la Juventus, ha seguido cosechando éxitos y ha demostrado que, a pesar de su edad, sigue siendo uno de los mejores jugadores del mundo.
 
-## Selección portuguesa
+### Historia de Cristiano Ronaldo con Portugal
 
-Ronaldo también ha tenido una destacada carrera en la selección portuguesa, siendo el jugador con más partidos y goles en la historia de su
+Cristiano Ronaldo debutó con Portugal en 2003, convirtiéndose rápidamente en una figura clave en la selección. A lo largo de los años, ha demostrado su habilidad, su liderazgo y su pasión por su país en cada partido que juega con la selección.
+
+En los primeros años de su carrera internacional, Ronaldo fue criticado por su falta de efectividad con la selección y por su actitud en el campo. Pero con el tiempo, Ronaldo demostró su valía y se convirtió en el líder y capitán indiscutible de Portugal.
+
+Uno de los momentos más importantes en la historia de Cristiano Ronaldo con Portugal fue en la Eurocopa de 2016. Después de una fase de grupos complicada, Portugal logró avanzar a las rondas eliminatorias gracias a un gol de Ronaldo en el partido contra Hungría. En los octavos de final, Ronaldo tuvo que abandonar el campo debido a una lesión en la rodilla, pero su presencia en el banquillo y su liderazgo desde fuera del campo ayudaron a Portugal a superar a Croacia y Polonia en los cuartos de final y semifinales, respectivamente. En la final contra Francia, Ronaldo tuvo que abandonar el campo nuevamente debido a una lesión, pero una vez más, su liderazgo desde fuera del campo inspiró a sus compañeros a luchar por la victoria. Portugal finalmente ganó la Eurocopa por primera vez en su historia, y Ronaldo se convirtió en el héroe nacional.
+
+En la Copa del Mundo de 2018, Ronaldo tuvo un desempeño impresionante, anotando cuatro goles en los cuatro partidos que Portugal jugó antes de ser eliminado por Uruguay en octavos de final. A pesar de la decepcionante salida de Portugal del torneo, Ronaldo demostró una vez más su capacidad para liderar y ser un jugador clave en su selección.
+
+En resumen, la historia de Cristiano Ronaldo con la selección portuguesa es una de las más destacadas en la historia del fútbol. Ronaldo se ha convertido en un icono del fútbol portugués y un héroe nacional, con varios títulos y goles importantes en su haber.```
+
+
